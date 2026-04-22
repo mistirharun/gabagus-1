@@ -17,7 +17,7 @@ Remember, characters and themes can be purchased with in-game **gcoins**. Save u
 
 Join the world of Gabagus now and have endless fun! 🕹️
 
-(this text was written by gpt4o just to be funny)
+(this text was written by gpt4o)
 
 ---
 
